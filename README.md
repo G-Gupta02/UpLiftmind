@@ -1,1 +1,1 @@
-This is a website for Mental health seekers
+This is a website for Mental health 
